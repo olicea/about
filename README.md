@@ -42,7 +42,7 @@ My role is not to:
 
 ## What do I expect from myself?
 
-* I smy team the best it can be?
+* Is my team the best it can be?
 * Am I doing the best I can do?
 * Are we shipping a great product?
 * Am I unblocking my team?

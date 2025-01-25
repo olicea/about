@@ -5,7 +5,7 @@
 I am originally from Mexico, have a small child and wife at home which is Cary,NC 
 
 **Some things I like:**
- * reading ([this is what I am currently reading)](https://www.goodreads.com/user/show/47474569-octavio-licea))
+ * reading ([this is what I am currently reading](https://www.goodreads.com/user/show/47474569-octavio-licea))
  * running, I ran a few marathons a few years ago, these days I go out a couple of times a week.
  * my small kid, even when she cries
 
